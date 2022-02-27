@@ -1,2 +1,0 @@
-# NikhilKatiki.github.io
-cHECKING
